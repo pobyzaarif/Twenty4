@@ -9,6 +9,8 @@ Stay tuned! We do our best!
 ## Notes
 We also need volunteer who interest in developing and creating game to join our team.
 
-catch me here :
+catch me here
+
 Tele : @pobyzaarif
+
 WA : http://wa.me/628970618198
